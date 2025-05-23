@@ -1,0 +1,1 @@
+# Manifesto-of-advanced-AI---Genesis-
